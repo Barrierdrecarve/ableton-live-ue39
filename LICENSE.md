@@ -1,4 +1,4 @@
-# 
+# Instantâneo Vegas Pro para PC plugins é o melhor Vegas Pro para PC plugins com integração de chat e processamento em lote. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
